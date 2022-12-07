@@ -1,8 +1,9 @@
 - ⌨️ Assalamualaikum & Greetings.
-- 👋 Hi, I’m @ShazwanLoh.
-- 👀 I’m interested in Online E-Commerce, B2C & B2B Service Businesses.
-- 🌱 I’m currently learning to managed & run with my own businesses.
-- 💞️ I’m looking to collaborate my work together with my businesses clients.
+- 👋 Hi, I’m Mr. @Shazwan Abdullah
+- 👀 I’m interested in e-Halal F & B, e-Multi Storages, ™/ ® e-Halal Health & Cosmetics, Telecommunications, Digital Smart IOT, Digital Online E-Biz, Digital Arts & Entertainment, B2C, B2B, Non/ Profit Commercial & Non-Profit Organisations. 
+[Email addresses: general_admin@slsolution.biz, sl.solutionmalaysia@gmail.com, sl.solution.malaysia@outlook.com, ext.djs.digital@outlook.com]
+- 🌱 I’m currently managed & run with my own businesses.
+- 💞️ I’m looking forward to collaborate my c/o work tasks with my businesses clients.
 - 📫 Please reach me at What’s App Biz:- +60133577127/ +60176735583
 
 <!---
