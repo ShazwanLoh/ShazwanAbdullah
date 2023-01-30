@@ -1,6 +1,6 @@
 - ⌨️ Assalamualaikum & Greetings.
 - 👋 Hi, I’m Mr. @Shazwan Abdullah
-- 👀 I’m interested in e-Halal F & B, e-Multi Storages, ™/ ® e-Halal Health & Cosmetics, Telecommunications, Digital Smart IOT, Digital Online E-Biz, Digital Arts & Entertainment, B2C, B2B, Non/ Profit Commercial & Non-Profit Organisations. 
+- 👀 I’m interested in e-Halal F & B, e-Multi Storages, ™/ ® e-Halal Health & Cosmetics, Telecommunications, Digital Smart IOT, Digital Online E-Biz & E-Commerce, Digital Arts & Entertainment, B2C, B2B, Non/ Profit Commercial & Non-Profit Organisations. 
 [Email addresses: general_admin@slsolution.biz, sl.solutionmalaysia@gmail.com, sl.solution.malaysia@outlook.com, ext.djs.digital@outlook.com]
 - 🌱 I’m currently managed & run with my own businesses.
 - 💞️ I’m looking forward to collaborate my c/o work tasks with my businesses clients.
