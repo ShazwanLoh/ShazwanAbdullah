@@ -4,7 +4,7 @@
 [Email addresses: general_admin@slsolution.biz, sl.solutionmalaysia@gmail.com, sl.solution.malaysia@outlook.com, ext.djs.digital@outlook.com]
 - 🌱 I’m currently managed & run with my own businesses.
 - 💞️ I’m looking forward to collaborate my c/o work tasks with my businesses clients.
-- 📫 Please reach me at What’s App Biz:- +60133577127/ +60176735583
+- 📫 Please reach me at What’s App Biz:- +60133577127
 
 <!---
 ShazwanLoh/ShazwanLoh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
